@@ -1,0 +1,1 @@
+# Lab 2: LoFi Sitemaps- see screenshots in folder
